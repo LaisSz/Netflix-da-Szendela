@@ -42,4 +42,9 @@
     - Enrolados
     - O bandido mais procurado do reino, Flynn Rider, se esconde em uma torre e acaba prisioneiro de Rapunzel, residente de longa data do local. Dona de cabelos dourados e mágicos com 21 metros de comprimento, ela está trancada há anos e deseja desesperadamente a liberdade.
    
-      ![](https://media1.tenor.com/m/KSEj_2CYOvYAAAAC/tangled-tangledlantern.gif)
+    ![](https://media1.tenor.com/m/KSEj_2CYOvYAAAAC/tangled-tangledlantern.gif)
+
+    - Os Gudes
+    - Família da pré-história vê sua caverna ser destruída. Depois disso, os Croods partem em uma aventura em busca de um novo lugar para morar, liderados por um garoto muito imaginativo que lhes ajuda a desbravar um mundo inteiramente novo.
+   
+      ![](https://media1.tenor.com/m/DaAsfMsV7iIAAAAC/woah-the-croods.gif)
